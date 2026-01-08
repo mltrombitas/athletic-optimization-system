@@ -1,1 +1,1 @@
-Drop screenshots here
+Drop screenshots here for daily briefings
