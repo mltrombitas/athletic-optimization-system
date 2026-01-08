@@ -1,1 +1,15 @@
-Drop screenshots here for daily briefings
+https://drive.google.com/open?id=1WVHrq5PUi2EolwbEJahptQzuY_MlCYwp&usp=drive_copy
+https://drive.google.com/open?id=16YzAl6ONVfzBvilPZ9F-lQHBEX5DFRaK&usp=drive_copy
+https://drive.google.com/open?id=1bNBQ9SVafVsfi-ssZYase0IDo3VJj93x&usp=drive_copy
+https://drive.google.com/open?id=1RmPYPe6hdihvHMP_cj_jM8ufmswd3OPE&usp=drive_copy
+https://drive.google.com/open?id=1D_1yQccOP5Vna9zOUPPOSVCDCeSAPqFH&usp=drive_copy
+https://drive.google.com/open?id=107wEMPsgolDxmrXXlI1LVrIYukcwUTlT&usp=drive_copy
+https://drive.google.com/open?id=1ZNIQhaqPNKoWdLV9QyNSR2d50_4gOIug&usp=drive_copy
+https://drive.google.com/open?id=1AazOGlEX6QNOlB7BXjYEKdY6_aoQFRwv&usp=drive_copy
+https://drive.google.com/open?id=1I8HEUONBiHrnRXva_DRonPTDy0QFW1bG&usp=drive_copy
+https://drive.google.com/open?id=1pSK8V4nhLUbIe_m8wOFHQUsyZjmv52Np&usp=drive_copy
+https://drive.google.com/open?id=1V26N88mCWEX2kGaqedPbCMNVp79ntgR_&usp=drive_copy
+https://drive.google.com/open?id=16kz9XqC_dCEaL6rQ1BT4NmVgjUUaI0Fc&usp=drive_copy
+https://drive.google.com/open?id=1ZyLSR66Wf7bxVOYLI40Tt7GROBBB2xOP&usp=drive_copy
+https://drive.google.com/open?id=1FQgR9RAEvhD6lHSzrUfOsWWD8RYhFSDw&usp=drive_copy
+https://drive.google.com/open?id=1icq2citdaMt8cKmtAZ3aSCRhS85LivQa&usp=drive_copy
